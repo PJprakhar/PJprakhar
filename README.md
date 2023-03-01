@@ -1,7 +1,7 @@
 
 ![Prakhar Jain](https://scontent.ftpe6-1.fna.fbcdn.net/v/t39.30808-6/305761559_5612301095493525_5654274801915604648_n.jpg?_nc_cat=109&ccb=1-7&_nc_sid=09cbfe&_nc_ohc=EhPHWyymdyAAX-S2LCN&_nc_ht=scontent.ftpe6-1.fna&oh=00_AfAcgfkSC7wEy-IVyESkiL_455p1zoBSfQr1pUuaVARnMg&oe=63FE555D)
 # PJ
-### Education:
+### Education :open_book: :
 #### [Tunghai University](https://eng.thu.edu.tw/), Taichung City, Xitun District, Taiwan - 2023-2024
 **Global Masters of Business Administration** - Interational Business
 
@@ -77,7 +77,7 @@
 - I am still working on my original songs and will be rolling them out soon.
 - **I am a [Spotify](https://open.spotify.com/artist/1n5vU37Ug1TqzzjMQDmH4k) verified artist.**
 - **My music is available on 21 different audio platforms like [Apple Music](https://music.apple.com/us/artist/prakhar-jain/1602616586), [Amazon Music](https://music.amazon.com/artists/B09N3GCXYQ/prakhar-jain?marketplaceId=ATVPDKIKX0DER&musicTerritory=US&ref=dm_sh_pDOwznGW2F7uCsXYkv6YEpdTq), [Instagram](https://www.instagram.com/) and many others.**
-- CLick [here](https://linktr.ee/prakharpj) to tune to my music on your favourite store :sunglasses: :notes: :microphone: :guitar: 
+- CLick **[here](https://linktr.ee/prakharpj)** to tune to my music on your favourite store :sunglasses: :notes: :microphone: :guitar: 
 
 
 
