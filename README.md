@@ -68,6 +68,17 @@
 - Responsible for making the calls to applicants and explained in detail about the job requirements.
 - Video screened/interviewed candidates as per the client’s process.
 
+### Side Hustle:
+
+#### Indie Artist :guitar: 
+- **I am an an Indian music composer, singer/songwriter.**
+- Started my journey by breaking a xylophone in childhood to learning Guitar and Ukulele, enhanced my craft in the guidance of my maestro, Amit Kaushik. 
+- I was an integral part of rock bands during my bachelors degree and started writing and composing songs thereafter. 
+- I am still working on my original songs and will be rolling them out soon.
+- **I am a [Spotify](https://open.spotify.com/artist/1n5vU37Ug1TqzzjMQDmH4k) verified artist.**
+- **My music is available on 21 different audio platforms like [Apple Music](https://music.apple.com/us/artist/prakhar-jain/1602616586), [Amazon Music](https://music.amazon.com/artists/B09N3GCXYQ/prakhar-jain?marketplaceId=ATVPDKIKX0DER&musicTerritory=US&ref=dm_sh_pDOwznGW2F7uCsXYkv6YEpdTq), [Instagram](https://www.instagram.com/) and many others.**
+- CLick [here](https://linktr.ee/prakharpj) to tune to my music on your favourite store :sunglasses: :notes: :microphone: :guitar: 
+
 
 
 
