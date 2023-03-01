@@ -11,6 +11,7 @@
 
 ### Professional Life:
 
+### [LinkedIn](https://www.linkedin.com/in/prakharpj/) Profile :briefcase:
 
 #### [Vertisystem, Inc.](https://vertisystem.com/), Indore, M.P., India - Remote
 **Sr. Talent Acquisition Specialist** - Nov 2021 – Dec 2022
