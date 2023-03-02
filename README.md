@@ -20,11 +20,11 @@ the Musical Rock Band of my college and emerged out as a performer during my gra
 **Bachelor of Technology** - Computer Science Engineering
 
 
-## Professional Life:
+## Professional Life :briefcase: :
 
-### [LinkedIn](https://www.linkedin.com/in/prakharpj/) Profile :briefcase:
+### [LinkedIn](https://www.linkedin.com/in/prakharpj/) Profile
 
-#### [Vertisystem, Inc.](https://vertisystem.com/), Indore, M.P., India - Remote
+### [Vertisystem, Inc.](https://vertisystem.com/), Indore, M.P., India - Remote
 **Sr. Talent Acquisition Specialist** - Nov 2021 – Dec 2022
 - Responsible for recruiting candidates for Fortune 500 Financial, State and IT clients.
 - Handling end-to-end recruitment of Junior, Middle & Senior level of recruitment independently.
@@ -32,21 +32,21 @@ the Musical Rock Band of my college and emerged out as a performer during my gra
 
 
 
-#### [The Judge Group](https://www.judge.com/), Noida, U.P., India
+### [The Judge Group](https://www.judge.com/), Noida, U.P., India
 **Executive Recruiter** - July 2020 – Nov 2021
 - Responsible for recruiting candidates for Fortune 500 Financial, Telecom and IT clients.
 - Handling end-to-end recruitment of Junior, Middle & Senior level of recruitment independently.
 - Successfully recruited a variety of IT/Non-IT professionals utilizing various modalities including LinkedIn, Edge (our proprietary database), Monster, CareerBuilder, Dice.
 
 
-#### [Compunnel, Inc](https://www.compunnel.com/), Noida, U.P., India
+### [Compunnel, Inc](https://www.compunnel.com/), Noida, U.P., India
 **Technical Recruiter** - July 2018 – June 2020
 - Handled end-to-end recruitment of Junior, Middle & Senior level of recruitment independently.
 - Successfully recruited a variety of IT/Non-IT professionals utilizing various modalities including LinkedIn, Staffline (our proprietary database), Monster, CareerBuilder, Dice.
 
 ## Side Hustle:
 
-#### Indie Artist :guitar: 
+### Indie Artist :guitar: 
 - **I am an an Indian music composer, singer/songwriter.**
 - Started my journey by breaking a xylophone in childhood to learning Guitar and Ukulele, enhanced my craft in the guidance of my maestro, Amit Kaushik. 
 - I was an integral part of rock bands during my bachelors degree and started writing and composing songs thereafter. 
