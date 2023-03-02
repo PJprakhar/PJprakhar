@@ -1,6 +1,17 @@
 
 ![Prakhar Jain](https://scontent-tpe1-1.xx.fbcdn.net/v/t39.30808-6/305761559_5612301095493525_5654274801915604648_n.jpg?_nc_cat=109&ccb=1-7&_nc_sid=09cbfe&_nc_ohc=hMfdMAwd6PwAX8spv7-&_nc_ht=scontent-tpe1-1.xx&oh=00_AfBBSVzijzDvMSDHXjibfp95Nb146U-zzj4xrwekHhKakQ&oe=6404441D)
-# PJ
+# About Me:
+I was born in Saharanpur, Uttar Pradesh (India) on July 1, 1995. My father is a businessman based 
+out of Saharanpur and as per Indian culture my mother is a home maker and takes care of all our family affairs. I 
+have one elder brother who is working as a Sr. Business Analyst at Nike, Taiwan. 
+
+I completed my senior secondary school in 2014 and started my Bachelor of Technology from Raj Kumar Goel 
+Institute of Technology, Ghaziabad, majoring in Computer Science and Engineering in 2014 and got graduated in 
+2018. 
+Along with academics, I took part in co-curricular and extra-curricular activities. I got inclined towards music in 
+early 2011 and hence I took some guitar coaching and been playing it thereafter. I did play a major role in shaping up 
+the Musical Rock Band of my college and emerged out as a performer during my graduation and won several inter-college musical events and some on National Level as well.
+
 ### Education :open_book: :
 #### [Tunghai University](https://eng.thu.edu.tw/), Taichung City, Xitun District, Taiwan - 2023-2024
 **Global Masters of Business Administration** - Interational Business
