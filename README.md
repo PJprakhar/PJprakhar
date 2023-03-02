@@ -1,5 +1,5 @@
 
-# Namaste | Hello | 你好 
+# Namaste :pray: | Hello :wave: | 你好 :wave:
 
 ![Prakhar Jain](https://scontent-tpe1-1.xx.fbcdn.net/v/t39.30808-6/305761559_5612301095493525_5654274801915604648_n.jpg?_nc_cat=109&ccb=1-7&_nc_sid=09cbfe&_nc_ohc=hMfdMAwd6PwAX8spv7-&_nc_ht=scontent-tpe1-1.xx&oh=00_AfBBSVzijzDvMSDHXjibfp95Nb146U-zzj4xrwekHhKakQ&oe=6404441D)
 ## About Me:
