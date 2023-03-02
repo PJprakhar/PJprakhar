@@ -53,7 +53,7 @@ the Musical Rock Band of my college and emerged out as a performer during my gra
 - I am still working on my original songs and will be rolling them out soon.
 - **I am a [Spotify](https://open.spotify.com/artist/1n5vU37Ug1TqzzjMQDmH4k) verified artist.**
 - **My music is available on 21 different audio platforms like [Apple Music](https://music.apple.com/us/artist/prakhar-jain/1602616586), [Amazon Music](https://music.amazon.com/artists/B09N3GCXYQ/prakhar-jain?marketplaceId=ATVPDKIKX0DER&musicTerritory=US&ref=dm_sh_pDOwznGW2F7uCsXYkv6YEpdTq), [Instagram](https://www.instagram.com/) and many others.**
-- CLick **[here](https://linktr.ee/prakharpj)** to tune to my music on your favourite store :sunglasses: :notes: :microphone: :guitar: 
+- Click **[here](https://linktr.ee/prakharpj)** to tune to my music on your favourite store :sunglasses: :notes: :microphone: :guitar: 
 
 ![pj](https://scontent.ftpe6-1.fna.fbcdn.net/v/t39.30808-6/329331208_724077655755874_1755510983700534003_n.jpg?_nc_cat=104&ccb=1-7&_nc_sid=8bfeb9&_nc_ohc=nmvvPsDVaI0AX-otMO3&_nc_ht=scontent.ftpe6-1.fna&oh=00_AfC0OdESb_i3nTVysUIotimhsYljBTwSxdn9dNwYiA8aVA&oe=64065ABF)
 
